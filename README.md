@@ -6,3 +6,6 @@ YuJin Jang(2nd)
 Hana Park(1st)
 KyuYeon Kim(1st)
 YongWu Oh(1st)
+
+03/06/2016 - 31/12/2016
+
